@@ -1,0 +1,1 @@
+# nmrih_hurt-full-status
